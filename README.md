@@ -231,4 +231,4 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl is available as a full free version. All fe
 Don't miss out on the thrilling adventure that awaits you! Download S.T.A.L.K.E.R. 2: Heart of Chornobyl now and step into a world where every choice matters.
 
 ---
-**Last updated:** 2026-10-08 17:48:45 UTC
+**Last updated:** 2026-10-08 23:12:56 UTC
